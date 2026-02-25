@@ -43,4 +43,4 @@
 
 - **Telegram:** [@MCISwag](https://t.me/MCISwag)
 - **Резюме на hh.ru:** [клик](https://ekaterinburg.hh.ru/resume/e5ac0993ff100e0c570039ed1f457578506a7a)
-- **Телефон:** 8-995-130-99-5 (предпочитаемый способ связи — Telegram)
+- **Телефон:** 8-995-130-99-95 (предпочитаемый способ связи — Telegram)
